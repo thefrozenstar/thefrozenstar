@@ -5,6 +5,3 @@
 
 HELLOUU IM SEAHORSE 
 
-always sitting in jjk area !! 
-
-feel free to sit with me if you'd like ( ˶ˆᗜˆ˵ ) (MAY NOT TALK A LOT THOUGH CAUSE IDK HOW TO KEEP CONVERSATIONS SOERY)
