@@ -6,3 +6,5 @@
 
 HELLOUU IM SEAHORSE !! w2i preferably ˆ𐃷ˆ
 
+SORRY IF I DONT RESPOND TO YOU IM AFK A LOT !! 
+
