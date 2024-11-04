@@ -8,3 +8,4 @@ HELLOUU IM SEAHORSE !! w2i preferably ˆ𐃷ˆ
 
 SORRY IF I DONT RESPOND TO YOU IM AFK A LOT !! 
 
+![5b4c0adfcf39f1fbae2c8c493d2141aa](https://github.com/user-attachments/assets/3975471c-b63a-4c0f-a5ec-f7bf19594044)
