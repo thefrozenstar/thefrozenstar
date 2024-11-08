@@ -19,9 +19,7 @@ sign my strawpage ! ꒰ I WILL 𝗔𝗟𝗪𝗔𝗬𝗦 DISPLAY YOUR ART!! ꒱
 i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, and 𝘀𝗼𝘂𝘁𝗵 𝗽𝗮𝗿𝗸 !! 
 </p> 
 
-![textcartman](https://github.com/user-attachments/assets/ce7bcccf-c87e-43e5-972a-4b861c677c28)
 
-![guinea](https://github.com/user-attachments/assets/e84815ee-57bb-4112-83c3-79953b67f5a4)
 
 
 
@@ -38,7 +36,9 @@ i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀
 
 
 
+![textcartman](https://github.com/user-attachments/assets/ce7bcccf-c87e-43e5-972a-4b861c677c28)
 
+![guinea](https://github.com/user-attachments/assets/e84815ee-57bb-4112-83c3-79953b67f5a4)
 
 
 ![Untitled131_20241108104011](https://github.com/user-attachments/assets/ba5ec33a-ff22-4a42-b984-18a34cab3792)
