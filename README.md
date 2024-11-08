@@ -1,8 +1,11 @@
 
+![welcome2](https://github.com/user-attachments/assets/0e31df15-c896-486f-915b-eb15f12728c1)
 
 
 
 ![BBF6F940-5BA4-460D-857B-EDD261423F8B](https://github.com/user-attachments/assets/fce866aa-d1db-40a9-8933-fd831713d938)
+
+![aboutme2](https://github.com/user-attachments/assets/b5c7b4d5-f6b1-445d-8c18-8ecf021e79c7)
 
 <p align="center">
 HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
@@ -12,6 +15,13 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 sign my strawpage ! ꒰ I WILL 𝗔𝗟𝗪𝗔𝗬𝗦 DISPLAY YOUR ART!! ꒱
 </p> 
 
+<p align="center">
+i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, and 𝘀𝗼𝘂𝘁𝗵 𝗽𝗮𝗿𝗸 !! 
+</p> 
+
+![textcartman](https://github.com/user-attachments/assets/ce7bcccf-c87e-43e5-972a-4b861c677c28)
+
+![guinea](https://github.com/user-attachments/assets/e84815ee-57bb-4112-83c3-79953b67f5a4)
 
 
 
