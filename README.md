@@ -1,11 +1,20 @@
 
 
 
+
 ![BBF6F940-5BA4-460D-857B-EDD261423F8B](https://github.com/user-attachments/assets/fce866aa-d1db-40a9-8933-fd831713d938)
 
 <p align="center">
-HELLOUU IM SEAHORSE!
+HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
+
+<p align="center">
+sign my strawpage ! ꒰ I WILL 𝗔𝗟𝗪𝗔𝗬𝗦 DISPLAY YOUR ART!! ꒱
+</p> 
+
+
+
+
 
 
 
