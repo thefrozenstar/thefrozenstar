@@ -24,7 +24,7 @@ i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀
 
 
 
-![BBF6F940-5BA4-460D-857B-EDD261423F8B](https://github.com/user-attachments/assets/ef4af712-368f-4e51-9a34-1c2d070c8741)
+
 
 
 
