@@ -4,8 +4,6 @@
 ![Untitled131_20241108104011](https://github.com/user-attachments/assets/ba5ec33a-ff22-4a42-b984-18a34cab3792)
 
 
-![aboutme2](https://github.com/user-attachments/assets/b5c7b4d5-f6b1-445d-8c18-8ecf021e79c7)
-
 <p align="center">
 HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
@@ -26,9 +24,7 @@ i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀
 
 
 
-![textcartman](https://github.com/user-attachments/assets/ce7bcccf-c87e-43e5-972a-4b861c677c28)
-
-![guinea](https://github.com/user-attachments/assets/e84815ee-57bb-4112-83c3-79953b67f5a4)
+![BBF6F940-5BA4-460D-857B-EDD261423F8B](https://github.com/user-attachments/assets/ef4af712-368f-4e51-9a34-1c2d070c8741)
 
 
 
