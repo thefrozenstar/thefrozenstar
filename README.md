@@ -10,11 +10,11 @@ HELLOUU IM 𝙎𝙀𝘼𝙃𝙊𝙍𝙎𝙀!!
 </p> 
 
 <p align="center">
-sign my strawpage ! ꒰ I WILL 𝗔𝗟𝗪𝗔𝗬𝗦 DISPLAY YOUR ART!! ꒱
+sign my strawpage guys
 </p> 
 
 <p align="center">
-i am currently interested in 𝗷𝗷𝗸, bsd, 𝗺𝗼𝘂𝘁𝗵𝘄𝗮𝘀𝗵𝗶𝗻𝗴, and 𝘀𝗼𝘂𝘁𝗵 𝗽𝗮𝗿𝗸 !! 
+what the freak banan a summer ♡
 </p> 
 
 
